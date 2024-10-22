@@ -26,7 +26,7 @@ Entries will be judged based on:
 - **Absurdity**: Does it make people laugh or wonder why it exists?
   
 ### **4. Deadline**
-- All entries must be submitted by **tbd**.
+- All entries must be submitted by November 19th.
 
 ---
 
